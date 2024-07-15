@@ -1,4 +1,8 @@
-## Hi there 👋
+Welcome to my page. Please call me Dest
+![image](https://github.com/user-attachments/assets/5701df5d-9ef6-4387-b99f-afaefc73d7b5)
+✧ I am usually afking so it might take a while for me to response to your whispers.
+✧ w2i. I don't bite. I just love using dots because they're cool.
+✧ mostly dniuf but i dont mind any ints 
 
 <!--
 **Destbedo/destbedo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
