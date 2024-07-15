@@ -1,8 +1,25 @@
-Welcome to my page. Please call me Dest
+✧Welcome to my page. Please call me Dest.
 ![image](https://github.com/user-attachments/assets/5701df5d-9ef6-4387-b99f-afaefc73d7b5)
 ✧ I am usually afking so it might take a while for me to response to your whispers.
+
 ✧ w2i. I don't bite. I just love using dots because they're cool.
+
 ✧ mostly dniuf but i dont mind any ints 
+
+✧ c + h is okay unless stated
+
+✧ pls do not copy my skins 
+
+✧ do not cover my characters or I'll hide you
+
+✧ i am a minor so please be normal
+
+✧ other albedo self shippers dni. ship roleplays dni.
+
+that's all. thanks for coming to my page.
+
+![55a120bc-9465-4cc5-8b29-2a22d9285fd6](https://github.com/user-attachments/assets/41c0c5a1-3e0b-4129-a735-016214939713)
+
 
 <!--
 **Destbedo/destbedo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
