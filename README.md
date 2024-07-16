@@ -17,7 +17,7 @@
 ✧ albedo self shippers dni, ship roleplays dni
 
 ![a1552434-f28c-4cd1-be81-804e45ea723c](https://github.com/user-attachments/assets/214ba23d-4818-4ba4-b2b8-633cd8ff32c9)
-
+A.... wind spirit? How fascinating... May I study you? If you do not mind, of course. *:･ﾟ✧*:･ﾟ
 
 
 
