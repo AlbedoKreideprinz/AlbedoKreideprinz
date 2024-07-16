@@ -4,9 +4,9 @@
 
 ✧ w2i, I don't bite ! mostly dniuf but i dont mind any ints !!
 
-✧ pls do not copy my skins 
+✧ pls do not copy my skins or cover my characters
 
-✧ do not cover my characters or I'll hide you
+✧ read my carrd pls !
 
 ✧ albedo self shippers dni, ship roleplays dni
 
