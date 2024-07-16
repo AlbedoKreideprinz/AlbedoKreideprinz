@@ -14,8 +14,9 @@
 ✧ i am a minor so please be normal
 
 ✧ albedo self shippers dni, ship roleplays dni
+![a1552434-f28c-4cd1-be81-804e45ea723c](https://github.com/user-attachments/assets/214ba23d-4818-4ba4-b2b8-633cd8ff32c9)
 
-![55a120bc-9465-4cc5-8b29-2a22d9285fd6](https://github.com/user-attachments/assets/41c0c5a1-3e0b-4129-a735-016214939713)
+
 
 
 <!--
