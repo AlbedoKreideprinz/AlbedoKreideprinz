@@ -1,5 +1,6 @@
 ✧Welcome to my page. Please call me Dest.
-![image](https://github.com/user-attachments/assets/5701df5d-9ef6-4387-b99f-afaefc73d7b5)
+![image](https://github.com/user-attachments/assets/4a8a05fb-7f75-415a-95df-790a4048b7a5)
+
 ✧ I am usually afking so it might take a while for me to response to your whispers.
 
 ✧ w2i. I don't bite. I just love using dots because they're cool.
