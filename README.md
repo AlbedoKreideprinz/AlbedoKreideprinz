@@ -4,15 +4,11 @@
 ![image](https://github.com/user-attachments/assets/2cc22672-bd08-489e-bc66-76ce16c712a8)
 ✧ I am usually afking so it might take a while for me to response to your whispers.
 
-✧ w2i. I don't bite
-
-✧ mostly dniuf but i dont mind any ints !!
+✧ w2i, I don't bite ! mostly dniuf but i dont mind any ints !!
 
 ✧ pls do not copy my skins 
 
 ✧ do not cover my characters or I'll hide you
-
-✧ i am a minor so please be normal
 
 ✧ albedo self shippers dni, ship roleplays dni
 
