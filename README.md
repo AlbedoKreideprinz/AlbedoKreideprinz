@@ -4,7 +4,7 @@
 
 ✧ w2i, I don't bite ! mostly dniuf but i dont mind any ints !!
 
-✧ pls do not copy my skins or cover my characters
+✧ pls do not copy my skins or cover my characters (I will send a kind whipser at first, keep hiding my character = hide)
 
 ✧ read my carrd pls !
 
