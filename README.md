@@ -13,7 +13,7 @@
 ![a1552434-f28c-4cd1-be81-804e45ea723c](https://github.com/user-attachments/assets/214ba23d-4818-4ba4-b2b8-633cd8ff32c9)
 ✧ A.... wind spirit? How fascinating... May I study you? If you do not mind, of course. *:･ﾟ✧*:･ﾟ
 
-✧ thanks for coming to my page ! ~ 
+✧ thanks for coming to my page ! ~
  ![image](https://github.com/user-attachments/assets/4a8a05fb-7f75-415a-95df-790a4048b7a5)
 
 
