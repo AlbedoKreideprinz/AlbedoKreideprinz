@@ -2,7 +2,7 @@
 
 ✧ I am usually afking so it might take a while for me to response to your whispers.
 
-✧ w2i, I don't bite ! mostly dniuf but i dont mind any ints !!
+✧ w2i, I don't bite ! I come off as awkward at first but I swear i'm nice !!
 
 ✧ pls do not copy my skins or cover my characters (I will send a kind whipser at first, keep hiding my character = hide)
 
