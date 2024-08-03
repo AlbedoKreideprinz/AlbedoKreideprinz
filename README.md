@@ -4,11 +4,11 @@
 
 ✧ w2i, I don't bite ! I come off as awkward at first but I swear i'm nice !!
 
-✧ pls do not copy my skins or cover my characters (I will send a kind whipser at first, keep hiding my character = hide)
+✧ pls do not copy my skins or cover my characters 
 
-✧ read my carrd pls !
+✧ read my carrd for more info
 
-✧ albedo self shippers dni, ship roleplays dni, dni if you think you love Bedo more than me ;(
+✧ albedo self shippers, ship roleplays, roleplays dni, dni if you think you love Bedo more than me ;( you dont.
 
 ![a1552434-f28c-4cd1-be81-804e45ea723c](https://github.com/user-attachments/assets/214ba23d-4818-4ba4-b2b8-633cd8ff32c9)
 ✧ A.... wind spirit? How fascinating... May I study you? If you do not mind, of course. *:･ﾟ✧*:･ﾟ
