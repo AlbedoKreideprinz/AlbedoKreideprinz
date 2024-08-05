@@ -6,7 +6,7 @@
 
 ✧ pls do not copy my skins or cover my characters 
 
-✧ my style is very incosistent. + feel free to tell me if you think I might be copying you
+✧ my style is very incosistent. + KINDLY tell me if you think I might be copying you
 
 ✧ albedo self shippers, ship roleplays, roleplays dni, dni if you think you love Bedo more than me ;( you dont.
 
