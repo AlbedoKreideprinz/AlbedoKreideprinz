@@ -1,8 +1,8 @@
 ![image](https://github.com/user-attachments/assets/2cc22672-bd08-489e-bc66-76ce16c712a8)
 
-✧ I am usually afking so it might take a while for me to response to your whispers.
+✧ I always have my chat off, w2i pls I don't bite ! I come off as awkward at first but I swear i'm nice !!
 
-✧ w2i, I don't bite ! I come off as awkward at first but I swear i'm nice !!
+✧ usually afk / offtab I'm sorry if I miss any of yalls message !
 
 ✧ pls do not copy my skins or cover my characters 
 
