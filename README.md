@@ -1,5 +1,10 @@
-
 ![image](https://github.com/user-attachments/assets/fe3658ea-c6ad-4520-a00e-1d9024f1df6e)
+<p align="center">
+// ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
+// ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
+// ·˚ ༘₊· ͟͟͞͞꒰➳ scroll for int / dni / bfi list ₊˚ପ⊹
+// ![carrd]https://destbedoo.carrd.co/
+</p>
 
 
 
