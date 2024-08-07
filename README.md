@@ -1,8 +1,5 @@
+![image](https://github.com/user-attachments/assets/5455a2be-8026-452a-a4f1-3a43d6b079a9)
 <p align="center">
-
-![image](https://github.com/user-attachments/assets/79668c2d-fa14-47f3-baef-902de8b4ecb0)
-
-
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
 <br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
 <br> ·˚ ༘₊· ͟͟͞͞꒰➳ scroll for int / dni / bfi list ₊˚ପ⊹
