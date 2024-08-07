@@ -27,6 +27,7 @@
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ DNI ! ˚୨୧⋆｡˚ ⋆
 <br> Albedo yumes, dbls.
+<br> if you think you love ALbedo more than me, you dont
 <br> basic dni criteria 
 <br> roleplayers, ship roleplayers.
 <br> proshippers, kaeluc, kaebedo (I have nothing agasint the ship its just their fans weird & cringe af.)
