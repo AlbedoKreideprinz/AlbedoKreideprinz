@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/5455a2be-8026-452a-a4f1-3a43d6b079a9)
 <p align="center">
-<br> ✦ ***The trusth of this world ... hmm, what could it be?*** ✦
+<br> ✦ The trusth of this world ... hmm, what could it be? ✦
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
 <br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
