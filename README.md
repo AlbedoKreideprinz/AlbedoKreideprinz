@@ -1,10 +1,10 @@
 ![image](https://github.com/user-attachments/assets/521d493b-60cd-4415-af43-5c86f288c9c7)
 
 <p align="center">
-// ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
-// ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
-// ·˚ ༘₊· ͟͟͞͞꒰➳ scroll for int / dni / bfi list ₊˚ପ⊹
-// ![carrd]https://destbedoo.carrd.co/
+//< br / > ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
+//< br / > ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
+//< br / > ·˚ ༘₊· ͟͟͞͞꒰➳ scroll for int / dni / bfi list ₊˚ପ⊹
+//< br / > ![carrd]https://destbedoo.carrd.co/
 </p>
 
 
