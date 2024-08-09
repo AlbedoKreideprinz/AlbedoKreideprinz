@@ -5,7 +5,7 @@
 ![image](https://github.com/user-attachments/assets/bb98bd33-0179-4a5f-b1ab-9cd812358e33)
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
-<br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
+<br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's one and only wife˚ ༘♡ ⋆｡˚
 <br> ·˚ ༘₊· ͟͟͞͞꒰➳ Aether irl ; Venti kinnie ₊˚ପ⊹
 <br> https://destbedoo.carrd.co/
 </p>
