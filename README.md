@@ -11,7 +11,7 @@
 <p align="center">
 <br> ✦
 
-![image](https://github.com/user-attachments/assets/eb7f6640-f7ed-42f1-a9c5-1e7a109630fe)
+
 
 <!--
 **Destbedo/destbedo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
