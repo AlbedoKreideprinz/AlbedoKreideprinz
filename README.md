@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/5455a2be-8026-452a-a4f1-3a43d6b079a9)
+![image](https://github.com/user-attachments/assets/4a26d8f7-f672-4fce-9c4b-0593591c97a2)
 <p align="center">
 <br> ✦ The trusth of this world ... hmm, what could it be? ✦
 <p align="center">
