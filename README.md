@@ -4,8 +4,8 @@
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
 <br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's only wife˚ ༘♡ ⋆｡˚
-<br> ·˚ ༘₊· ͟͟͞͞꒰➳ scroll for dni / bfi list ₊˚ପ⊹
-<br> carrd https://destbedoo.carrd.co/
+<br> ·˚ ༘₊· ͟͟͞͞꒰➳ Aether irl ; Venti kinnie ₊˚ପ⊹
+<br> carrd(https://destbedoo.carrd.co/)
 </p>
 
 <p align="center">
