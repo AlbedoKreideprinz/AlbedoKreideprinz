@@ -13,7 +13,7 @@
 
 ![image](https://github.com/user-attachments/assets/8eb4a3c7-6d52-446e-9700-86c9c6ce4fba)
 <p align="center">
-<br> ⋆ ˚｡⋆୨୧˚ BFY ! ˚୨୧⋆｡˚ ⋆
+<br> ⋆ ˚｡⋆୨୧˚ BFI ! ˚୨୧⋆｡˚ ⋆
 <br> I usually have my chat  disabled, pls w2i ! I'm also mostly afking or offtab so I'm VERY,VERY sorry if I missed any of yall's whispers 💔
 <br> c+h is always welcomed! No need to ask me, just come up and sit next to me :D
 <br> pls do not come up to me and keep booping me it will make me uncomfable :( (unless we're moots)
