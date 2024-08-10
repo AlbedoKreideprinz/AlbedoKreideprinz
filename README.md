@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/0f14519e-6fc1-4dbc-a550-ec73232fa437)
 <p align="center">
-<br> ✦ The truth of this world ... hmm, what could it be? ✦
+<br> ✦ 𝓣𝓱𝓮 𝓽𝓻𝓾𝓽𝓱 𝓸𝓯 𝓽𝓱𝓲𝓼 𝔀𝓸𝓻𝓵𝓭 ... 𝓱𝓶𝓶, 𝔀𝓱𝓪𝓽 𝓬𝓸𝓾𝓵𝓭 𝓲𝓽 𝓫𝓮? ✦
 
 ![image](https://github.com/user-attachments/assets/bb98bd33-0179-4a5f-b1ab-9cd812358e33)
 <p align="center">
