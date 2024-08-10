@@ -1,8 +1,8 @@
-![image](https://github.com/user-attachments/assets/0f14519e-6fc1-4dbc-a550-ec73232fa437)
+![image](https://github.com/user-attachments/assets/4df016fe-67d0-4050-9d41-cb53de3fa869)
 <p align="center">
 <br> ✦ 𝓣𝓱𝓮 𝓽𝓻𝓾𝓽𝓱 𝓸𝓯 𝓽𝓱𝓲𝓼 𝔀𝓸𝓻𝓵𝓭 ... 𝓱𝓶𝓶, 𝔀𝓱𝓪𝓽 𝓬𝓸𝓾𝓵𝓭 𝓲𝓽 𝓫𝓮? ✦
 
-![image](https://github.com/user-attachments/assets/bb98bd33-0179-4a5f-b1ab-9cd812358e33)
+![image](https://github.com/user-attachments/assets/999eb56f-2256-4933-a367-bdf32a133b4c)
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
 <br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's one and only wife˚ ༘♡ ⋆｡˚
@@ -11,9 +11,10 @@
 </p>
 
 <p align="center">
-<br> ✦
+<br> ✦ 𝓢𝓬𝓪𝓻𝔂? 𝓶𝔂 𝓰𝓸𝓭, 𝔂𝓸𝓾'𝓻𝓮 𝓭𝓲𝓿𝓲𝓷𝓮.. ✦
 
-![image](https://github.com/user-attachments/assets/d2db850d-6408-4b33-a670-c1a670ab5ab6)
+![image](https://github.com/user-attachments/assets/e8abc520-859d-4bf5-b446-caadc29e5dd1)
+
 
 
 
