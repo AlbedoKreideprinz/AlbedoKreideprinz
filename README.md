@@ -2,7 +2,7 @@
 <p align="center">
 <br> ✦ 𝓣𝓱𝓮 𝓽𝓻𝓾𝓽𝓱 𝓸𝓯 𝓽𝓱𝓲𝓼 𝔀𝓸𝓻𝓵𝓭 ... 𝓱𝓶𝓶, 𝔀𝓱𝓪𝓽 𝓬𝓸𝓾𝓵𝓭 𝓲𝓽 𝓫𝓮? ✦
 
-![image](https://github.com/user-attachments/assets/999eb56f-2256-4933-a367-bdf32a133b4c)
+![image](https://github.com/user-attachments/assets/fbb2e8f5-a812-4370-a4d8-dc3ccdef8089)
 <p align="center">
 <br> ⋆ ˚｡⋆୨୧˚ Dest or Cal ✧.* , Bedo enthusiast ✦🌻
 <br> ·˚ ༘she/her ✦ bisexual ✦ Albedo's one and only wife˚ ༘♡ ⋆｡˚
